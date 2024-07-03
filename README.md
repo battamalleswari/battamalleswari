@@ -26,5 +26,3 @@
 
 
 
-  
-![parimalX](https://github.com/battamalleswari/battamalleswari/assets/143959584/61548be4-0648-4e7d-97cf-b871367aef3e)
